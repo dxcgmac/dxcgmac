@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Gabriel Balvin
 - 👀 I'm interseted in technology
 - 📫 you can reach me @gabrielkibael95gmail.com
-- 😄 Pronouns: Thesc
+- 😄 Pronouns: PK
   
 
 <!---
