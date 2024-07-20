@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Gabriel Balvin
-- 👀 I'm interseted in technology and software engineering
-- 🌱 I’m currently learning software engineering
+- 👀 I'm interseted in technology
 - 📫 you can reach me @gabrielkibael95gmail.com
 - 😄 Pronouns: Thesc
   
